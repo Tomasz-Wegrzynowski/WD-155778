@@ -1,0 +1,1 @@
+# adnotacje dodane do 1 i 2 wykresu
